@@ -1,3 +1,16 @@
+### Favs
+
+```
+ಠ_ಠ
+reddit disapproval face 
+
+ʕᵔᴥᵔʔ
+squinting bear
+
+ಠ‿ಠ
+devious smile
+```
+
 ```
 ʘ‿ʘ
 innocent face 
