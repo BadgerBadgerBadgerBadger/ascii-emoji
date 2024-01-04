@@ -12,6 +12,12 @@ devious smile
 ```
 
 ```
+(눈_눈) 
+wtf face
+
+(¬,‿,¬)
+or-both face
+
 ʘ‿ʘ
 innocent face 
 
